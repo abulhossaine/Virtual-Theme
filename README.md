@@ -11,4 +11,4 @@ If you like my theme then subscribe my YouTube channel at https://www.youtube.co
 
 Thank you
 Abul Hossain
-http://virtualtechnologiess.com
+http://digitallynerd.com.com
